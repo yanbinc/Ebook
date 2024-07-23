@@ -114,8 +114,11 @@ https://blog.csdn.net/u013250861/article/details/138294506
 原文链接：https://blog.csdn.net/u013250861/article/details/138294506
 
 
+群 域 环 关系
+https://www.cnblogs.com/xdyixia/p/12418684.html
 
 
+![image](https://github.com/user-attachments/assets/1c60aa75-e220-40ef-8b59-3873214c14da)
 
 
 
